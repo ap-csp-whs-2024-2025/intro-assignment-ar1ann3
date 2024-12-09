@@ -11,5 +11,5 @@
 ## About Me
 Answer the questions below
 * Something interesting about me is I was born and raised in the Philippines for 12 years.
-* Ask Mr. Vu anything:
+* Ask Mr. Vu anything: What's your favorite food?
 * List your sports and extracurriculars you participate in
